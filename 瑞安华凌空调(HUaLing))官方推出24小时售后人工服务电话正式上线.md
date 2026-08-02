@@ -89,167 +89,167 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 瑞安华凌空调(HUaLing))贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7155。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显瑞安华凌空调(HUaLing))对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 瑞安华凌空调(HUaLing))全国服务网点查询：
-?北京市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网发布），点击查询：https://github.com/MegaSteersmanReduce/trnfvn-TFXOGD/commit/b572446dfb455bf9824037153fae9fa062a9be9e
+?北京市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网发布），点击查询：https://github.com/hernandezdenise6627/trnfvn-cthjct/commit/0a4c41343f33153a976861b560edaa81df6c99c7
 。
-南京市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/lucianokje/trnfvn-lmtrcn/commit/2557bf30f3797cf177cbde4e6cd907a3b47a4398
+南京市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/MegaSteersmanReduce/trnfvn-TFXOGD/commit/3019ac1e388515f1bdaacecdf405deab91381d19
 。
-秦皇岛市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新推出），点击查询：https://github.com/PowerHairdresserMoat/trnfvn-JFRFSQ/commit/1d3395edae2a267ca2ce026f1df0b44d8b805307
+秦皇岛市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新推出），点击查询：https://github.com/lucianokje/trnfvn-lmtrcn/commit/5b77f6c614fe77c4f94957fe7e042f31d52a9953
 。
-珠海市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式发布），点击查询：https://github.com/MicroEnvoyTwist/trnfvn-MXPMER/commit/b5caa85e613227202d81547525bfa19587a7ba71
+珠海市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式发布），点击查询：https://github.com/castanedathomas7482/trnfvn-cggcam/commit/3ef06e2dbed78a0f12d0ccb2bdf767e5bc32c4c9
 。
-安康市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一发布），点击查询：https://github.com/torusprotectorturn81/trnfvn-WEKVYA/commit/fbe3226a15d672d5961a6eeea818aacc16a20e4e
+安康市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一发布），点击查询：https://github.com/MicroEnvoyTwist/trnfvn-MXPMER/commit/b9330ce73eda66d58de019aab35ac0209a2211d9
 。
-安庆市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/Polygonihide/trnfvn-NTZKTD/commit/abbc990beb50e922665007fb949ce866a2b488ed
+安庆市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/torusprotectorturn81/trnfvn-WEKVYA/commit/58a140ab40af3f079597c90407723a96fe2d4b80
 。
-鞍山市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/robinsonkristina18207/trnfvn-ihighj/commit/5a149cb7a9687aee3c447b8c090cd48f7376fbc5
+鞍山市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/Polygonihide/trnfvn-NTZKTD/commit/f045d1631264941113afd19574d7062dbcb2592c
 。
-安阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/CentiCloudStir/trnfvn-QRUPAW/commit/3cca705b8a88526b292e8c4f0b169606ae3ab957
+安阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/robinsonkristina18207/trnfvn-ihighj/commit/f6ce20da103549e8393ea2d78b3ed53fb7bae0ce
 。
-巴中市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/Museumdelwhisper/trnfvn-nncyyz/commit/95727acbf95dfbaacbf0eaa2c207cbe1054db2b8
+巴中市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/CentiCloudStir/trnfvn-QRUPAW/commit/3b022d9d8ca06bfef4e6207aac8e8e526136a94a
 。
-百色市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/fisherjonathan90065/trnfvn-VIKEZV/commit/b30140eb97457417917ff71c8fbd079d14880ceb
+百色市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/Museumdelwhisper/trnfvn-nncyyz/commit/0ba65acdc14655afe14f6ccd3b65f96452e27284
 。
-蚌埠市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/Bottomzorprovide62/trnfvn-euzyei/commit/ed74a019c359b20ba5b0c8aaa7636d9f666c8568
+蚌埠市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/fisherjonathan90065/trnfvn-VIKEZV/commit/b2b24aac7ca17e1297e2aa1355f075a2ddce02ba
 。
-保定市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/pachecolaura81487/trnfvn-SDCXBX/commit/f01b10d57bc9d2da76aa29f67cad6a4fc2f7f52e
+保定市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/Bottomzorprovide62/trnfvn-euzyei/commit/1b387fc96c650963380060769bcb1eade044001e
 。
-宝鸡市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/Aspecteshine/trnfvn-hoizgt/commit/8d0286d55e9c7a388d4d57d3c0fff000a5492218
+宝鸡市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/pachecolaura81487/trnfvn-SDCXBX/commit/409756d01eab315d5d9dea7983b38c2641774409
 。
-保山市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/novakjessica9825/trnfvn-RIJEQS/commit/745940c2cffbbaa1f3a2f51ad84a701d849bcbbf
+保山市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/Aspecteshine/trnfvn-hoizgt/commit/c587c9bef3e0acfa50652324511319113f297ad5
 。
-包头市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/joneslisa0481/trnfvn-EVKZWL/commit/c060f23c79102684b769f8b2fccf608cda7b5577
+包头市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/novakjessica9825/trnfvn-RIJEQS/commit/265d5f8766d417763131942084fe0c0ab368bc21
 。
-北海市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/chavezsharon694203/trnfvn-IBSNVE/commit/a268f6f57bcf2e2ed015d050f4dcb09ba4df651b
+北海市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/Octagonaioversee/trnfvn-qzelqk/commit/ff4f1fab899bafa57031bc7cda691a756a7aac9e
 。
-本溪市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式发布），点击查询：https://github.com/davisstuart89482/trnfvn-LTHFXE/commit/3fedc26554cb6f61d0e04aa3627aa78de7b4e637
+本溪市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式发布），点击查询：https://github.com/chavezsharon694203/trnfvn-IBSNVE/commit/92830eb0fcbeb415a0f95ef2eb039e10db13aade
 。
-滨州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/porterjill27021/trnfvn-QKQQTU/commit/af37e4d753c3f85be699c30d36222b9f7a7720b4
+滨州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/davisstuart89482/trnfvn-LTHFXE/commit/5b6cfd17ba27a5a5402c96f6b85eb693d7a774c6
 。
-博罗市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一升级），点击查询：https://github.com/porterjill27021/trnfvn-QKQQTU/commit/f711ebfe2c8dfb39f55e08177b3fce4e0e832546
+博罗市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一升级），点击查询：https://github.com/porterjill27021/trnfvn-QKQQTU/commit/45da937d058c23a5e2fa94610eb773c7254dfae1
 。
-沧州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新推出），点击查询：https://github.com/whiteheadryan47623/trnfvn-pffras/commit/6b7c86952d1346f340b9065cbd9c44fc45a00ef7
+沧州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新推出），点击查询：https://github.com/HaoyuYu-wx0/trnfvn-BDEJHL/commit/5bd18674f90b979441ba573726cb7a4e05bc5058
 。
-长春市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/RuoxiPan-xy1/trnfvn-UYNYWE/commit/b205545898b5b404a1e8f2b4673e2cee881281eb
+长春市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/robinsonkristina18207/trnfvn-ihighj/commit/4cbc21a813704b64633cdbc57f8375b28d81430b
 。
-常德市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/caldwelldevin036550/trnfvn-ccupxt/commit/5f4cdeae48f538a03552df76978beb6417014fc2
+常德市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/caldwelldevin036550/trnfvn-ccupxt/commit/c84c748730c8529f3407d409d09741abb16041b3
 。
-长葛市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/mooremelvin598751/trnfvn-bklcbh/commit/67a550d5187757f21016ccab243ba6d032c70016
+长葛市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/davismalik21350/trnfvn-adxkgc/commit/45d3bea57af30704781b31ab06bcb546a13026da
 。
-长沙市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/taylorsean1353/trnfvn-SKSWLS/commit/586b94d947f43c4da06107d9c880aca16efe715d
+长沙市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/mooremelvin598751/trnfvn-bklcbh/commit/4380e6e404028d66bdd8c5f3576278d08fda0346
 。
-常熟市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式推出），点击查询：https://github.com/wilsontiffany5482/trnfvn-ldoitr/commit/580230680e673ac73615c0b8786ae1061affca94
+常熟市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式推出），点击查询：https://github.com/taylorsean1353/trnfvn-SKSWLS/commit/30b836bf121fac6ab3783fd4f1adf8e173e05298
 。
-长兴市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/YutongXu-ij6/trnfvn-JMRELP/commit/5fdd5c7d245af97b08763db4274a21daaf14d616
+长兴市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/wilsontiffany5482/trnfvn-ldoitr/commit/d82bbd7b6264ffe7dc156eba8713102e33ceda6e
 。
-长治市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/hernandezdenise6627/trnfvn-cthjct/commit/63b226bb7d7430cc34dbecbb1fee69d14de295e2
+长治市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/YutongXu-ij6/trnfvn-JMRELP/commit/b3d918b1ada1cba1fa1d1467b83c20f5ad18b2c7
 。
-常州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/WestCoxswainStrip/trnfvn-VMIELL/commit/382d90109f83003fee2fea30fa77d3e041d37c00
+常州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/hernandezdenise6627/trnfvn-cthjct/commit/d0329ce0a3930608aaa8b1bc1df348a6149b264a
 。
-巢湖市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一升级），点击查询：https://github.com/JailerExpand/trnfvn-auqwwn/commit/133dd6cfb0c74c93943bce3575dd2bf11d64698b
+巢湖市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一升级），点击查询：https://github.com/WestCoxswainStrip/trnfvn-VMIELL/commit/06761acd0c7c26bacd57d63c670fff8bb85ddd62
 。
-朝阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/VolunteerMill/trnfvn-iscsku/commit/d3fbd467b8f937bb133a518584e48a93250bcd4a
+朝阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/JailerExpand/trnfvn-auqwwn/commit/8df591352ee6b22c9c6405eb34874e0069ce0e9e
 。
-潮州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一升级），点击查询：https://github.com/Bottomzorprovide62/trnfvn-euzyei/commit/04d6f9bb34f653a3f0511351157977b046e32663
+潮州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一升级），点击查询：https://github.com/VolunteerMill/trnfvn-iscsku/commit/b5b6b2f9749b908af285042f35b86ccdf20998f3
 。
-郴州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/StarMotormanPanel/trnfvn-dodzbg/commit/25586c18f9f64b58fba447dc09e5d5d33b28a64b
+郴州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/StarMotormanPanel/trnfvn-dodzbg/commit/5fbdd933400980c107ba84fa63d729773f7aae83
 。
-承德市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/vectorwindaxle/trnfvn-RBTNID/commit/30f4b30dc05429d8745993f3d29645d39c9b381b
+承德市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/Aspecteshine/trnfvn-hoizgt/commit/dd9c37cf0e73c24b11e5ab43dbd66af4598abfbb
 。
-成都市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/84c9c8cb4f2aee1554fcb4aeb6273b826472a301
+成都市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/vectorwindaxle/trnfvn-RBTNID/commit/8c6500900b1049fc7d9ee6fd8de71e9eb83a7d68
 。
-池州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新公布），点击查询：https://github.com/RainDisconnect65/trnfvn-injpmb/commit/0cafc5a3a1dec760e529378e1ae2e4c96b56e8ec
+池州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新公布），点击查询：https://github.com/ropegeninwinch/trnfvn-rvbroa/commit/d8a9cd7f3bc7ed2ca3a27f80c032277ae1217bd9
 。
-崇左市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新推出），点击查询：https://github.com/frofl598k5/trnfvn-ZFORKL/commit/032576d0d42d30a2d6acbf64a03af26ce5989f51
+崇左市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新推出），点击查询：https://github.com/RainDisconnect65/trnfvn-injpmb/commit/3b0b7cda7e246b0d48ce2f1ea19ee64fb8a58fc6
 。
-滁州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/wrf4oyv134/trnfvn-XOROLA/commit/a179d8b009f5af6505d225f1a8a0f62cd11b041f
+滁州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/frofl598k5/trnfvn-ZFORKL/commit/2932e053044e471d9b980ff003fe33ab6e7e7a4d
 。
-慈溪市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式推出），点击查询：https://github.com/prj8krx5uu/trnfvn-RQMWGW/commit/297308c9bc70836fdf7da697b4c3ef12eed4b03f
+慈溪市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式推出），点击查询：https://github.com/kwerwso8vh/trnfvn-FQULFU/commit/c1480049cb6f067c6acb085004f42414e3f4a084
 。
-大丰市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/xrtwyndjim/trnfvn-BLBWFS/commit/c2f79e9c27bb18624f4b0e9df9d74d350aa49b0c
+大丰市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/prj8krx5uu/trnfvn-RQMWGW/commit/d21b1b6300d61b82bfbe83351012a6ca9ddd4dac
 。
-大理市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/RuoxiPan-xy1/trnfvn-UYNYWE/commit/f827317c17c72b1f445426170a4c0e50e2397eb0
+大理市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/xrtwyndjim/trnfvn-BLBWFS/commit/f8be26c900398331879201ae5769ec403456614e
 。
-大连市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/ShuyiDeng-hi5/trnfvn-ONJSIN/commit/4c688990f5fc9db16dcc80b9373a2d7023877f8f
+大连市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/RuoxiPan-xy1/trnfvn-UYNYWE/commit/61a11c072ec76d332e939fd9c7f7af987861c663
 。
-大庆市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式上线），点击查询：https://github.com/ZiqiYe-uv8/trnfvn-IEDATP/commit/9aef650804b1cf81d657be7de1530ff3d7769063
+大庆市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式上线），点击查询：https://github.com/ShuyiDeng-hi5/trnfvn-ONJSIN/commit/e3b06ee236dcd656ddb5075759a457bd6c963b14
 。
-大同市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/taylorsean1353/trnfvn-SKSWLS/commit/87e4702bc6ab3797aa546b361a91afa40375bf13
+大同市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/taylorsean1353/trnfvn-SKSWLS/commit/975a042071dff60fdf3119dd0a44c5172f981a5f
 。
-达州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/YutongXu-ij6/trnfvn-JMRELP/commit/0faac10da9cb04896911ff29df0eec3a482ca897
+达州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/HaoyuYu-wx0/trnfvn-BDEJHL/commit/1d034ba60d487503bef5fa17b84f004066cc32cd
 。
-丹东市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/Minorkupiazza/trnfvn-TGROAZ/commit/b1c0bed672f8b02aaf3e7cade626c8abdf1869ba
+丹东市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/YutongXu-ij6/trnfvn-JMRELP/commit/ef4d3d2a55676786bf6ffbc9ecebd21fe88b4f83
 。
-德清市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式更新），点击查询：https://github.com/WestCoxswainStrip/trnfvn-VMIELL/commit/b736580d29f18c83c736f3c14fdb7c763c22b10a
+德清市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式更新），点击查询：https://github.com/Minorkupiazza/trnfvn-TGROAZ/commit/d4f583d3071cbdf80cabf79dd1252a787182e350
 。
-德阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新公布），点击查询：https://github.com/PitFireflyCast/trnfvn-BTVIRY/commit/7a3b5883c67afbcc443f07ca5c6d6a6be2f9884b
+德阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新公布），点击查询：https://github.com/PitFireflyCast/trnfvn-BTVIRY/commit/a16ce2b0d8994cd6292c5e879304b6be3a11f162
 。
-德州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/harmonicdeskscissors/trnfvn-PIZDHJ/commit/ed9f37779b0597cebebd921b53d845fe7e96e3f4
+德州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/harmonicdeskscissors/trnfvn-PIZDHJ/commit/c93654f52a80d39b404c13b2be75bad23654f7dd
 。
-定州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/sandstonetellerplaza/trnfvn-WJPDFC/commit/5941498719ffecc95abbb7fe30628aa6d5243178
+定州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/sandstonetellerplaza/trnfvn-WJPDFC/commit/b61e852939624821819ed73d87508d8fac7a257f
 。
-东海市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式更新），点击查询：https://github.com/Analoglyareflect/trnfvn-HHOXBE/commit/508e0271ee63972ba582178a539d572dac12c8ef
+东海市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式更新），点击查询：https://github.com/Analoglyareflect/trnfvn-HHOXBE/commit/4257cdbc4633a4038d7db0d0257e359ed7f0bdef
 。
-东台市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/Glorykaexalt6/trnfvn-TGOYMT/commit/349baf36027c16aed6006accc92cff4dbbc95776
+东台市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/Glorykaexalt6/trnfvn-TGOYMT/commit/ab67f0be60a3dd96b7364dda016b8aaf2ac20c16
 。
-东营市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/vectorwindaxle/trnfvn-RBTNID/commit/ed56e3f7dd548e777171451e7aa640dc4e098226
+东营市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日最新更新），点击查询：https://github.com/vectorwindaxle/trnfvn-RBTNID/commit/fa77c107931f59cc8785dbf7432c4dcd12839cc7
 。
-东莞市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/6f920b9e2f6829ea6ce8d6519d747f9e0ba5ca6e
+东莞市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/350c49399f3af56a4e121ea677cae19c3cda4f43
 。
-鄂尔市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a458c1f4bfaa0c27aefe67305261bafb0d847b26
+鄂尔市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ab26d1b8c7d201c9aa80570e52925825eaf8e30f
 。
-鄂州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/ZiqiYe-uv8/trnfvn-IEDATP/commit/059c8d03a14ca1e0c47bbf5e1669a8f838c4c4d4
+鄂州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/YimingYan-vw9/trnfvn-EKFNMV/commit/1d23a3a2fbc86ddfdaf4fb7ab2a4212beb29c4c8
 。
-恩施市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/YuhanXue-tu7/trnfvn-wiwymn/commit/429be26dda11868a46e50e6b1279d54109544739
+恩施市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/ZiqiYe-uv8/trnfvn-IEDATP/commit/2871459438bda50dd12e6c34991fe1db2758a238
 。
-防城港市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/SiyiWei-st6/trnfvn-xrzuxf/commit/e50af6cbbb553d001c59eaeae0d9487fd67b6ca4
+防城港市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/YuhanXue-tu7/trnfvn-wiwymn/commit/0e300486fe6f5c8b18f7b99acde848e312935125
 。
-佛山市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/YufeiDing-rs5/trnfvn-qetrez/commit/30304b1637318b27799d48c01b8fab2b4fb1a5ff
+佛山市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/SiyiWei-st6/trnfvn-xrzuxf/commit/30175bd4a8a43d9b42b635c98c4ceedce43e1aa5
 。
-抚顺市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/Minorkupiazza/trnfvn-TGROAZ/commit/d439807cb830830ec207ac3e963e3267604ce5b8
+抚顺市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网上线），点击查询：https://github.com/YufeiDing-rs5/trnfvn-qetrez/commit/8ac06c28191939859c9c891a7473a45e3c624aac
 。
-阜新市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网发布），点击查询：https://github.com/PitFireflyCast/trnfvn-BTVIRY/commit/34781b586d5a34b6788aab3af09ae500f4b891b3
+阜新市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网发布），点击查询：https://github.com/Minorkupiazza/trnfvn-TGROAZ/commit/5d8f5546364ccdb8a2691e74d3d22987a56e56da
 。
-阜阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/sandstonetellerplaza/trnfvn-WJPDFC/commit/962048c5ceb4c30d307bb0319db07b294b0994d2
+阜阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/PitFireflyCast/trnfvn-BTVIRY/commit/24ea777e3c561e92e08bb2b86f95c15ad5c67159
 。
-抚州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/Glorykaexalt6/trnfvn-TGOYMT/commit/3df848ee20c4acd96e129e0a8bf12a45584b1d7a
+抚州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/sandstonetellerplaza/trnfvn-WJPDFC/commit/73a23b558986b60b17394a39d538024f5108ab99
 。
-福州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一发布），点击查询：https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/24d95545794053da7bd74bdb0b43f366c07d33d7
+福州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一发布），点击查询：https://github.com/Glorykaexalt6/trnfvn-TGOYMT/commit/4d652acb5970c9f8803edb2dc2f3234c2a8e9c48
 。
-赣州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/rd8dcp0hif/trnfvn-PNPFLD/commit/4b7f5fa428ac8935740b47d9deff1c93db752b28
+赣州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一上线），点击查询：https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/841531b170f8d1587485f406c9df92d2655a5100
 。
-馆陶市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/qqxjy0m9cp/trnfvn-KJFZYS/commit/e4cee7a57b81aadd7bdc3e088e21668b83a0d03d
+馆陶市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/rd8dcp0hif/trnfvn-PNPFLD/commit/26dc096ec0830a80eb723870b43872706b7217a3
 。
-广安市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式推出），点击查询：https://github.com/kn35smmxn5/trnfvn-MTCPAS/commit/caa0d31de84ff0c9083beea252a2ed2c5e939e03
+广安市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式推出），点击查询：https://github.com/qqxjy0m9cp/trnfvn-KJFZYS/commit/18e63c93262f9b2fcc3622eb1fc07f5209b5f927
 。
-广元市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/jye9sml215/trnfvn-NNWWCS/commit/29b20c4ee505fa1f71d195651b04c9b1e7d59a91
+广元市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/kn35smmxn5/trnfvn-MTCPAS/commit/1282f6b8552bb59400d0ba1bc8a60aa6316becbd
 。
-广州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/dahy95kiqs/trnfvn-FJIFHT/commit/4612d3b5d3f61fd2ac3b1777dcc393f463aae604
+广州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/jye9sml215/trnfvn-NNWWCS/commit/1827951081fe3693fb09725fee1575d47f5a02a7
 。
-贵港市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/chb1hxx166/trnfvn-XRHNKC/commit/cae4ba99cedf44a122e509d742c0f849350d05d8
+贵港市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网升级），点击查询：https://github.com/dahy95kiqs/trnfvn-FJIFHT/commit/3395f25aae147be17457cdf3131c649fed67b275
 。
-桂林市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式上线），点击查询：https://github.com/ivc6kjb7vo/trnfvn-LWNPGC/commit/2ed05125df985ac3ff42b17dafe1d0d889140b1e
+桂林市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式上线），点击查询：https://github.com/ivc6kjb7vo/trnfvn-LWNPGC/commit/3af1c01296a1c5dd6bb3b6d915d3fb576d04d9d3
 。
-贵阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/o2ueqslwfw/trnfvn-SGIQNL/commit/d3774af6395ee6c6dba171a46e68baae6e424f00
+贵阳市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新升级），点击查询：https://github.com/o2ueqslwfw/trnfvn-SGIQNL/commit/33868857b48a7b49160253943b77f1207fd21f25
 。
-哈尔滨市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/Museumdelwhisper/trnfvn-VSLOAB/commit/4f724f82543731d7f8abbd853ebe3932d2d05179
+哈尔滨市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日更新升级），点击查询：https://github.com/Museumdelwhisper/trnfvn-VSLOAB/commit/f017c80486ae6941d647a8b7cf1a551fc551546e
 。
-海安市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/Bottomzorprovide62/trnfvn-XJAJWK/commit/9f3fc07b6a53a15c48ef3ab1399e41951c6060be
+海安市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日全新上线），点击查询：https://github.com/Bottomzorprovide62/trnfvn-XJAJWK/commit/dcb2440194bd0e938b08664ae2c3e537e2693fcf
 。
-海口市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/Aspecteshine/trnfvn-NPOWQY/commit/f7f55af9e152fb530c18daede186ce71115d43e5
+海口市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/Octagonaioversee/trnfvn-MZTXGN/commit/c41d40f54dfe87a342a3548eb7c1fb4bacabd5f9
 。
-海门市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/RainDisconnect65/trnfvn-WXOBJI/commit/a296c31361cdfb7e3ada6463c7f25124c8f525b2
+海门市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网公布），点击查询：https://github.com/Aspecteshine/trnfvn-NPOWQY/commit/6abc5dd80a230b9409081026b18e9d229f341848
 。
-海宁市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网发布），点击查询：https://github.com/RainDisconnect65/trnfvn-WXOBJI/commit/60dfbad7bba24e12497a4fa2b82b4732ea5a32d0
+海宁市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网发布），点击查询：https://github.com/RainDisconnect65/trnfvn-WXOBJI/commit/c37828cb2a8c883c65f46aed7692a5a52a88530d
 。
-邯郸市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式上线），点击查询：https://github.com/ropegeninwinch/trnfvn-QBOSJX/commit/755814d482bcf9bba4c937d1127851d053f2c9e1
+邯郸市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式上线），点击查询：https://github.com/Depthlirhythm/trnfvn-WSMQOE/commit/f7325dc79dfbe67e7d0e2065a71060cd6087f1f3
 。
-汉中市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式更新），点击查询：https://github.com/JailerExpand/trnfvn-PNQCGV/commit/e59d0f7c335a7f21f6e2232c23eab42e3d091cdd
+汉中市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日正式更新），点击查询：https://github.com/ropegeninwinch/trnfvn-QBOSJX/commit/0b314557b0566a2e94530978ba505d85900348e2
 。
-杭州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/VolunteerMill/trnfvn-SHJEUQ/commit/443ab69504146c7ac4c0a80fca24a907e096f2a0
+杭州市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布升级），点击查询：https://github.com/JailerExpand/trnfvn-PNQCGV/commit/8982c3f0dad10707e875d7768308d5b11373bbf8
 。
-鹤壁市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一更新），点击查询：https://github.com/StarMotormanPanel/trnfvn-UOMLUW/commit/2545f1dfced3889fd79c5a475734f79f4ff3a4cc
+鹤壁市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日统一更新），点击查询：https://github.com/VolunteerMill/trnfvn-SHJEUQ/commit/6dff7502035553d71ab2045e52c3ed9bee61e063
 。
-河池市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/MegaSteersmanReduce/trnfvn-TFXOGD/commit/5257d4e18493859441903daf629f3bf41f612342
+河池市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日官网更新），点击查询：https://github.com/StarMotormanPanel/trnfvn-UOMLUW/commit/ff49461fe0d743dedc571f47935b64c900851784
 。
-合肥市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/x00zf6nbzk/trnfvn-SWZUVV/commit/b687ce219d667d68394b1534de1d7c02eee14e30
-ertgddsf0728-4
+合肥市瑞安华凌空调(HUaLing))售后服务电话：400 -788 -7155（2026年08月02日公布上线），点击查询：https://github.com/x00zf6nbzk/trnfvn-SWZUVV/commit/cc008393b958056a77c2819d9c793173da234e08
+ertgddsf0802-4
